@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Snurklll
+- 👀 I’m interested in sniffing code
+- 🌱 I’m currently learning coding
+- 💞️ I’m looking to collaborate on coding
+- 📫 How to reach me: via screaming
+- 😄 Pronouns: me
+- ⚡ Fun fact: no. serious code sniffing
